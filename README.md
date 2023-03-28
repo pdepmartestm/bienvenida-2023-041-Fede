@@ -7,5 +7,3 @@ Numero de legajo: 207.977-0
 - Actualmente desarrollo mi propio empredimiento que es dar clases particulares de "Algoritmos y Estructuras de datos" 👨🏻‍🏫
  
 Uno de mis sueños a lograr seria darme el lujo de tener la experiencia de ser mochillero 
-
-¡Espero ayudar en lo que sea!
